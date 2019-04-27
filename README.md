@@ -1,0 +1,2 @@
+# ltcbot
+Assalamu"alaikum
